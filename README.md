@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PratikBanmeru
 - 👀 I’m interested in Code with Pratik
-- 🌱 I’m currently learning SE E&TC Eng.
-- 💞️ I’m looking to collaborate on let update you soon but I collaborate with Airbus
+- 🌱 I’m currently learning TE E&TC Eng.
+- 💞️ I’m looking to collaborate on let update you soon but I collaborate with Aviation Industry
 - 📫 How to reach me Insta: @pratik_airbus
 Facebook: Pratik_Banmeru
 Twitter: @PratikBanmeru
